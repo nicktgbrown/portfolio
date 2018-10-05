@@ -11,3 +11,7 @@ I grew up drawing the days away, so Graphic Design was the dream career for a ki
 - [behance] (https://www.behance.net/ntgbrown)
 - [vimeo] (https://vimeo.com/user71123987)
 - [linkedin] (https://www.linkedin.com/in/nicholas-brown-66028b146/)
+
+---
+
+© Nick Brown Design
